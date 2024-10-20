@@ -6,7 +6,7 @@ All the files you need to help you execute Operation Big Red can be found in thi
 
 If you need anything further from me, you know how to contact me.
 
-Bah Humbug!
+BaH Hum8ug!
 
 The Dark Grinch!
 
